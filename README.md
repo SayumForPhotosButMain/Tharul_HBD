@@ -1,1 +1,1 @@
-# A Birthday wish for my best fried :- Tharul
+# A Birthday wish for my best friend :- Tharul
